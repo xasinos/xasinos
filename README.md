@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to phish
 - 💞️ I’m looking to collaborate on phishing 
 - 📫 How to reach me hit my ig @twotwinars
-- 😄 Pronouns: ...
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: im pretty new to this stuff i dont want a handout but help would be nice fr 
 
 <!---
